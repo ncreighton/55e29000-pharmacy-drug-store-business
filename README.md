@@ -1,2 +1,25 @@
-# 55e29000-pharmacy-drug-store-business
-Stop losing sleep over your pharmacy business plan. You need a blueprint that investors and banks actually approve—without wasting months or thousands on consultants.  This Pharmacy &amp; Drug Store Business Plan and Strategy Template Pack replaces guesswork with a proven, editable framework. It includes all critical sections—from regulatory compliance
+# Pharmacy & Drug Store Business Plan and Strategy Template Pack
+
+
+
+---
+
+## Free vs Pro
+
+| Feature | Free | Pro |
+|---------|:----:|:---:|
+| Basic template | Yes | Yes |
+| Standard layout | Yes | Yes |
+| Premium components | - | Yes |
+| Custom styling | - | Yes |
+| Support included | - | Yes |
+| Regular updates | - | Yes |
+
+### Upgrade to Pro
+
+Get the full version with all premium features, priority support, and lifetime updates.
+
+**[Get Pro Version](https://buy.stripe.com/3cIaEX5iTcYIbRS0Ved0p0P)**
+
+- [Buy Now (Stripe)](https://buy.stripe.com/3cIaEX5iTcYIbRS0Ved0p0P)
+
